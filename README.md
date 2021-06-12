@@ -1,7 +1,7 @@
 ### Hi there 👋
-### Im Telegatto
-### Discord = Il Telegatto#7777
-### Lmiao
+### Im Telegatto😹
+### Discord = Il Telegatto#7777🟦
+### Lmiao🍟
 
 <!--
 **IlTelegatto/IlTelegatto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
