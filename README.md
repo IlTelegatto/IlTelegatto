@@ -1,3 +1,4 @@
+![iltelegattobannerforsocial](https://user-images.githubusercontent.com/69989584/130076951-513d9ea5-d585-4b05-a35c-dafa9c58d902.png)
 ### Hi there 👋
 ### Im Telegatto😹
 ### Discord = Il Telegatto#7777🟦
